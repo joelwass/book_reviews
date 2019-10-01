@@ -1,4 +1,4 @@
-The sense of an ending - by Julian Barnes  9/10
+## The sense of an ending - by Julian Barnes  9/10
 
 Absolutely awesome book. The ending initially kind of sucks but gets better the more you think about it.
 
